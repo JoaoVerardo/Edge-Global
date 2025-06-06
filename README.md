@@ -16,6 +16,7 @@ Como funciona
 link projeto tinkercad: https://www.tinkercad.com/things/gEHYZblZx79-mighty-robo/editel?returnTo=https%3A%2F%2Fwww.tinkercad.com%2Fdashboard&sharecode=2l-qY9z5EfOhcAJrMMatA0QLKcdfNjQvSHhA2YSXjTs
 link dos videos:
 https://youtu.be/Dvk5q4bFPc8?si=VsTuOcj8PGjHe3SS
+
 https://youtu.be/Y20bo7KhAT8?si=tClA52nBL-dUdQdU
 -----------------------------------------------------------------------
 
